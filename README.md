@@ -4,16 +4,16 @@ I'm Charlotte Tham, a student currently studying in Dunman High School.
 
 I'm using GitHub for school projects, at least for now.
 
-
 Likes:
 
-Cats (meow)
+-Cats (meow)
 
-Dogs (especially puppies)
+-Dogs (especially puppies)
 
-Writing (English of course)
+-Writing (English of course)
 
-Games 
+-Games 
+
 
 Yay
 
